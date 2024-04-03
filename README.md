@@ -5,6 +5,4 @@ or contribute to:
 
 https://github.com/nescitus/rodent-iv
 
-(as I AM willing to do).
-
-Thank you! BYE!
+or go outside! Thank you! BYE!
